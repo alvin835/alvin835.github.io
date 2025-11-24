@@ -6,7 +6,7 @@ I am a dedicated Computer Science student at Macao Polytechnic University, build
 
 #### Contact
 
-Email: alvin[at]fas.mpu.edu
+Email: alvinwong2099@gmail.com
 
 #### Education
 Currently undertaking the first semester of Bachelor of Computer Science at Macao Polytechnic University, commencing 2025.
