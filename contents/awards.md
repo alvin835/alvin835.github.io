@@ -1,16 +1,10 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- Intraschool Web Design Competition 2nd Place
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
+- Computer Science Project "Most Creative Award"
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2024.
+- School-Wide Mathematics Competition 3rd Place
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2023.
+- Intraschool English Public Speaking Competition 2nd Place
 
-- Freshman Scholarship (CUMT), 2022.
 
-- Outstanding Undergraduate Thesis Award (Jiangsu, China), 2022.
-
-- First-Prize Corporate Scholarship (CUMT), 2020.
-
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
